@@ -1,0 +1,1 @@
+# SMAN3PADANG
